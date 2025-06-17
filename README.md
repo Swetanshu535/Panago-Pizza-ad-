@@ -1,1 +1,3 @@
 # Panago-Pizza-ad-
+
+This project involved designing two Instagram poster ads for Panago Pizza, focused on birthday celebrations. The first ad highlights a child cutting a birthday cake surrounded by Panago pizzas, emphasizing the brand's warm and festive association. The second ad uses a sleek, modern design to showcase a large, appetizing pizza with clean typography. Both visuals promote special birthday offers—such as free medium pizzas and vouchers—encouraging user engagement via the #PanagoBirthday hashtag. The designs were crafted to increase customer interaction and brand loyalty through visual storytelling and clear discount messaging.
